@@ -1,1 +1,1 @@
-# Treehouse-projects
+# Treehouse projects
